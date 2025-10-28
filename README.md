@@ -1,1 +1,1 @@
-# Cupertinovetss
+# Cupertinovets
